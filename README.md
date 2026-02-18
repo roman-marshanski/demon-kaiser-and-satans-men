@@ -20,7 +20,7 @@ Demon Kaiser returns to hell from a future version of Earth carrying knowledge h
 
 He refuses.
 
-As punishment, Satan strips Kaiser of his demonic powers and sends him to Earth as a human. No supernatural strength. No infernal protection. Only intellect, instinct, and memory remain.
+As punishment, Satan strips Kaiser of his demonic powers and sends him to Earth as a human. No supernatural strength. No infernal protection. Only intellect and instinct remain.
 
 What follows is a struggle for survival in the human world, where ancient forces operate behind modern systems and the boundary between the supernatural and the ordinary begins to collapse.
 
